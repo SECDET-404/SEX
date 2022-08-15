@@ -12,3 +12,13 @@ Free 2004-2009 cloner...THIS IS A FREE COMMAND SO DON'T MISUSE THIS COMMAND
 `cd SEX`
 
 `python SECDET.py`
+
+
+
+
+
+
+
+
+
+![Visitor Count](https://profile-counter.glitch.me/C4LLM3D3V1L/count.svg)
